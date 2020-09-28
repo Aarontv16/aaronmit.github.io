@@ -1,2 +1,0 @@
-# aaronmit.github.io
-Website
